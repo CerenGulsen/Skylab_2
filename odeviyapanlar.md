@@ -1,2 +1,2 @@
-Ceren Gülşen \n
+Ceren Gülşen -
 Hüseyin Kurnaz
